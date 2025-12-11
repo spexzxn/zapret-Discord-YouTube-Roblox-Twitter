@@ -1,0 +1,2 @@
+Open general
+Откройте general
